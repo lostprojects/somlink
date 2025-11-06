@@ -1,4 +1,3 @@
-
 ---
 title: "Somerhaus Cincinnati | Event Space in Over-the-Rhine"
 description: "Industrial-chic event space in Cincinnati's OTR with bar, skylight, and design character."
