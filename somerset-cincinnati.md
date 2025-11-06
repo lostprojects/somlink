@@ -1,35 +1,35 @@
 ---
 title: "Somerset OTR Cincinnati | Greenhouse Cocktail Bar & Event Space"
-description: "Conservatory cocktail bar in Cincinnati's OTR with library lounge, garden nooks, and zero-proof drinks. Private bookings 8-45 guests."
+description: "Somerset OTR is Cincinnati's greenhouse cocktail garden with a library lounge, reservable garden nooks, happy hour, and flexible private-party options."
 canonical_url: https://somersetotr.com/
 ---
 
 # Somerset OTR: A Greenhouse Bar With a Working Library and Room to Celebrate
 
-Tucked into Over-the-Rhine at 139 E McMicken Ave, [Somerset](https://somersetotr.com/) is part cocktail garden, part glass-roofed conservatory, part old-world lounge—built from eight shipping containers and layered with objects gathered on long overland trips. It's a [Cincinnati cocktail bar](https://somersetotr.com/) with a sense of place and a strong point of view.
+Tucked into Over-the-Rhine at 139 E McMicken Ave, [Somerset OTR](https://www.somersetotr.com/) is part cocktail garden, part glass-roofed conservatory, part old-world lounge—built from eight shipping containers and layered with objects gathered on long overland trips. It's a [greenhouse bar in Cincinnati](https://www.somersetotr.com/) with a sense of place and a strong point of view.
 
 ## Two experiences on one property
 
-At the heart of the site is the Conservatory, a bright [greenhouse bar](https://somersetotr.com/) that drinks beautifully by day and glows at night. Steps away, the Lounge trades sunlight for low light: books, leather, a carved mantle, and the kind of seating that keeps conversations going. The grounds tie it together—paths, nooks, and an outdoor kitchen built into a double-decker bus with rooftop seating.
+At the heart of the site is the Conservatory, a bright greenhouse bar that drinks beautifully by day and glows at night. Steps away, the Lounge trades sunlight for low light: books, leather, a carved mantle, and the kind of seating that keeps conversations going. The grounds tie it together—paths, nooks, and an outdoor kitchen built into a double-decker bus with rooftop seating.
 
 ## What you can actually reserve (and for how many)
 
-- **Lounge (private use):** 20–45 guests, about 30 seated (nearly 50 with standing). Listed at 4 hours for $400. Great for milestone birthdays, micro-receptions, or an executive mixer that doesn't feel sterile.
-- **Garden nooks:** several options; for example, the Large Roofed Gazebo seats 8–12 and books 3 hours for $75. It's a weather-savvy anchor for small groups that still want the energy of the garden.
-- **Large private reservations:** if you need more room, Somerset will configure indoor seating, patio sections, and semi-private areas—submit a request and the team will tailor it.
+- **Lounge (private use):** 20–45 guests, about 30 seated (nearly 50 with standing). Listed at 4 hours for $400. Great for milestone birthdays, micro-receptions, or an executive mixer that doesn't feel sterile. [Book the Lounge for a private party](https://www.somersetotr.com/loungeapplication).
+- **Garden nooks:** several options; for example, the Large Roofed Gazebo seats 8–12 and books 3 hours for $75. It's a weather-savvy anchor for small groups that still want the energy of the garden. [Reserve a garden space](https://www.somersetotr.com/garden-application).
+- **Large private reservations:** if you need more room, Somerset will configure indoor seating, patio sections, and semi-private areas—[submit a request](https://www.somersetotr.com/largeprivatereservations) and the team will tailor it.
 - **Non-profits & community groups:** daytime/happy-hour use of most areas can be discounted—or even free—at manager discretion. That policy is rare and worth using.
 
-**Practical note:** Somerset is a bar, not a restaurant. Reservations secure a space (for four hours); there's no table service. Garden reservations require arrival within one hour of opening; otherwise the hold is released so the space doesn't sit empty. The Lounge allows a later arrival window. Private ticketed events aren't permitted.
+**Practical note:** Somerset is a bar, not a restaurant. Reservations secure a space (for four hours); there's no table service. Garden reservations require arrival within one hour of opening; otherwise the hold is released so the space doesn't sit empty. The Lounge allows a later arrival window. Private ticketed events aren't permitted. See [event FAQs](https://www.somersetotr.com/faqs) for complete policies.
 
 ## Drinks with range (including zero-proof)
 
-The menu swings from travel-inspired signatures to thoughtful non-alcoholic builds. Expect house hits like the Ube Margarita, Golden Hour Martini, Freaky Tiki, and a clean Higan Spritz alongside zero-proof options such as Phony Negroni and Ziggy Stardust. If your group mixes drinkers and non-drinkers, this list makes everyone feel seen.
+The [Somerset drink menu](https://www.somersetotr.com/drink-menu) swings from travel-inspired signatures to thoughtful non-alcoholic builds. Expect house hits like the Ube Margarita, Golden Hour Martini, Freaky Tiki, and a clean Higan Spritz alongside zero-proof options such as Phony Negroni and Ziggy Stardust. If your group mixes drinkers and non-drinkers, this list makes everyone feel seen.
 
 ## Hours, parking, and easy logistics
 
 **Open:** Mon–Tue 4 pm–12 am; Wed–Fri 4 pm–2 am; Sat 2 pm–2 am; Sun 2 pm–12 am. 
 
-**Happy hour** on weekdays (4–7 pm) takes $2 off cocktails, spirits, drafts, and wine pours. Street parking is free around the property; there's also a pay lot at Rothenberg Academy (1622 Main St, ~2-minute walk)—don't leave a car overnight.
+**Happy hour** on weekdays (4–7 pm) takes $2 off cocktails, spirits, drafts, and wine pours. Street parking is free around the property; there's also a pay lot at Rothenberg Academy (1622 Main St, ~2-minute walk)—don't leave a car overnight. Full details at [hours, location & parking](https://www.somersetotr.com/hourslocationparking).
 
 ## Design you can feel, not just photograph
 
@@ -44,7 +44,7 @@ Somerset's visual language pulls from real places: towering doors commissioned i
 
 ## The sister venue for larger gatherings
 
-One block east at 1415 Republic St, [Somerhaus](https://somerhaus.space/) offers a 3,080-square-foot industrial event space with skylight, full bar infrastructure, and capacity for 80–130 guests. If your gathering outgrows Somerset's lounge or you need a ceremony + reception venue, Somerhaus is the natural partner—same design sensibility, different scale.
+One block east at 1415 Republic St, [Somerhaus](https://somerhaus.space/) offers a 3,080-square-foot industrial event space with skylight, full bar infrastructure, and capacity for 80–130 guests. If your gathering outgrows Somerset's lounge or you need a [ceremony + reception venue](https://somerhaus.space/), Somerhaus is the natural partner—same design sensibility, different scale.
 
 ## Quick facts
 
