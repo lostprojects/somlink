@@ -3,8 +3,8 @@ description: "Industrial-chic event space in Cincinnati's OTR with bar, skylight
 url: "https://lostprojects.github.io/somlink"
 baseurl: ""
 
-# Theme (optional - GitHub Pages defaults to minima)
-# theme: minima
+# Use no theme for plain rendering
+theme: null
 
 # Plugins
 plugins:
