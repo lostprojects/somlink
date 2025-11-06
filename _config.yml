@@ -1,0 +1,12 @@
+title: "Somerhaus Cincinnati | Event Space in Over-the-Rhine"
+description: "Industrial-chic event space in Cincinnati's OTR with bar, skylight, and design character."
+url: "https://lostprojects.github.io/somlink"
+baseurl: ""
+
+# Theme (optional - GitHub Pages defaults to minima)
+# theme: minima
+
+# Plugins
+plugins:
+  - jekyll-seo-tag
+  - jekyll-sitemap

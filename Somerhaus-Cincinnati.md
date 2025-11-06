@@ -1,4 +1,10 @@
 
+---
+title: "Somerhaus Cincinnati | Event Space in Over-the-Rhine"
+description: "Industrial-chic event space in Cincinnati's OTR with bar, skylight, and design character."
+canonical_url: https://somerhaus.space/
+---
+
 # A Cincinnati Event Space With a Pulse: Somerhaus in Over‑the‑Rhine
 
 Walk into [Somerhaus](https://somerhaus.space/) and you don't get a generic ballroom. You get a 3,080‑square‑foot former garage with a long skylight, exposed brick, a roll‑up door, and just enough industrial grit to give your celebration a backbone. This [industrial‑chic event space](https://somerhaus.space/) sits on Republic Street in Cincinnati's Over‑the‑Rhine (OTR), a block off Washington Park and a short walk from Vine. It's a venue with a point of view—and that's exactly the point.
