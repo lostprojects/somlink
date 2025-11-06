@@ -15,4 +15,4 @@ Conservatory cocktail bar with library lounge and garden nooks. Private bookings
 
 ---
 
-**Main sites:** [somerhaus.space](https://somerhaus.space/) • [somerset.cincy](https://somersetcincy.com/)
+**Main sites:** [somerhaus.space](https://somerhaus.space/) • [somersetotr.com](https://somersetotr.com/)

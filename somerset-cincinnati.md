@@ -1,16 +1,16 @@
 ---
 title: "Somerset OTR Cincinnati | Greenhouse Cocktail Bar & Event Space"
 description: "Conservatory cocktail bar in Cincinnati's OTR with library lounge, garden nooks, and zero-proof drinks. Private bookings 8-45 guests."
-canonical_url: https://somersetcincy.com/
+canonical_url: https://somersetotr.com/
 ---
 
 # Somerset OTR: A Greenhouse Bar With a Working Library and Room to Celebrate
 
-Tucked into Over-the-Rhine at 139 E McMicken Ave, [Somerset](https://somersetcincy.com/) is part cocktail garden, part glass-roofed conservatory, part old-world lounge—built from eight shipping containers and layered with objects gathered on long overland trips. It's a [Cincinnati cocktail bar](https://somersetcincy.com/) with a sense of place and a strong point of view.
+Tucked into Over-the-Rhine at 139 E McMicken Ave, [Somerset](https://somersetotr.com/) is part cocktail garden, part glass-roofed conservatory, part old-world lounge—built from eight shipping containers and layered with objects gathered on long overland trips. It's a [Cincinnati cocktail bar](https://somersetotr.com/) with a sense of place and a strong point of view.
 
 ## Two experiences on one property
 
-At the heart of the site is the Conservatory, a bright [greenhouse bar](https://somersetcincy.com/) that drinks beautifully by day and glows at night. Steps away, the Lounge trades sunlight for low light: books, leather, a carved mantle, and the kind of seating that keeps conversations going. The grounds tie it together—paths, nooks, and an outdoor kitchen built into a double-decker bus with rooftop seating.
+At the heart of the site is the Conservatory, a bright [greenhouse bar](https://somersetotr.com/) that drinks beautifully by day and glows at night. Steps away, the Lounge trades sunlight for low light: books, leather, a carved mantle, and the kind of seating that keeps conversations going. The grounds tie it together—paths, nooks, and an outdoor kitchen built into a double-decker bus with rooftop seating.
 
 ## What you can actually reserve (and for how many)
 

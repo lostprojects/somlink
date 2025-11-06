@@ -82,11 +82,11 @@ Republic Street itself is permit‑only, so steer guests to garages in your invi
 
 ## A space with a story, not a theme
 
-The design lineage is real. Somerhaus is the sister space to [Somerset](https://somersetcincy.com/), the indoor/outdoor cocktail garden built from eight shipping containers and global finds. Inside Somerhaus you'll spot a 200‑year‑old Japanese fishing boat hung in the rafters and village gates from India—objects with history, not just props. In other words, the environment carries conversation on its own. Browse the [photo gallery](https://somerhaus.space/venue-details/photo-gallery/) to see these details up close.
+The design lineage is real. Somerhaus is the sister space to [Somerset](https://somersetotr.com/), the indoor/outdoor cocktail garden built from eight shipping containers and global finds. Inside Somerhaus you'll spot a 200‑year‑old Japanese fishing boat hung in the rafters and village gates from India—objects with history, not just props. In other words, the environment carries conversation on its own. Browse the [photo gallery](https://somerhaus.space/venue-details/photo-gallery/) to see these details up close.
 
 ## The sister venue for smaller gatherings
 
-One block west at 139 E McMicken Ave, [Somerset](https://somersetcincy.com/) offers a greenhouse Conservatory bar, library Lounge (20–45 guests), and garden nooks for intimate gatherings. If you need a rehearsal dinner spot, after-party venue, or cocktail-focused celebration for under 50 guests, Somerset is the natural pairing—same design sensibility, different scale.
+One block west at 139 E McMicken Ave, [Somerset](https://somersetotr.com/) offers a greenhouse Conservatory bar, library Lounge (20–45 guests), and garden nooks for intimate gatherings. If you need a rehearsal dinner spot, after-party venue, or cocktail-focused celebration for under 50 guests, Somerset is the natural pairing—same design sensibility, different scale.
 
 ## If you're planning here, a workable game plan
 
