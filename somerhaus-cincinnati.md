@@ -1,38 +1,20 @@
-------
-
-title: "Somerhaus & Somerset | Cincinnati Event Spaces & Cocktail Bar"title: "Somerhaus Cincinnati | Event Space in Over-the-Rhine"
-
-description: "Resources for Somerhaus event space and Somerset cocktail bar in Cincinnati's Over-the-Rhine"description: "Industrial-chic event space in Cincinnati's OTR with bar, skylight, and design character."
-
----canonical_url: https://somerhaus.space/
-
 ---
-
-# Cincinnati Event Spaces & Cocktail Bars
+title: "Somerhaus Cincinnati | Event Space in Over-the-Rhine"
+description: "Industrial-chic event space in Cincinnati's OTR with bar, skylight, and design character."
+canonical_url: https://somerhaus.space/
+---
 
 # A Cincinnati Event Space With a Pulse: Somerhaus in Over‑the‑Rhine
 
-## Articles
-
 Walk into [Somerhaus](https://somerhaus.space/) and you don't get a generic ballroom. You get a 3,080‑square‑foot former garage with a long skylight, exposed brick, a roll‑up door, and just enough industrial grit to give your celebration a backbone. This [industrial‑chic event space](https://somerhaus.space/) sits on Republic Street in Cincinnati's Over‑the‑Rhine (OTR), a block off Washington Park and a short walk from Vine. It's a venue with a point of view—and that's exactly the point.
 
-### [Somerhaus Cincinnati | Event Space in Over-the-Rhine](somerhaus-cincinnati)
+## What the room does that most rooms don’t
 
-Industrial-chic event space with skylight, bar, and real infrastructure. 3,080 sq ft, up to 130 guests.## What the room does that most rooms don’t
-
-
-
-### [Somerset OTR | Greenhouse Cocktail Bar & Event Space](somerset-cincinnati)Scale and light. Somerhaus feels open but not echoey. The central skylight throws natural light across concrete floors, ivy‑lined walls, and steel rafters, so ceremonies don’t need heavy décor and daytime off‑sites don’t feel like they’re in storage. Capacity is honest: up to 130 for a cocktail format, ~80 seated at dinner tables (with those tables and chairs already on site). The result is a space that flexes without losing character.
-
-Conservatory cocktail bar with library lounge and garden nooks. Private bookings 8-45 guests.
+Scale and light. Somerhaus feels open but not echoey. The central skylight throws natural light across concrete floors, ivy‑lined walls, and steel rafters, so ceremonies don’t need heavy décor and daytime off‑sites don’t feel like they’re in storage. Capacity is honest: up to 130 for a cocktail format, ~80 seated at dinner tables (with those tables and chairs already on site). The result is a space that flexes without losing character.
 
 ## Real infrastructure, not wishful thinking
 
----
-
 The venue reads “design‑led,” but it works like a production space. Notable features include:
-
-**Main sites:** [somerhaus.space](https://somerhaus.space/) • [somerset.cincy](https://somersetcincy.com/)
 
 - Two ADA restrooms
 - Built‑in bar with commercial ice, glasswasher, two stations, and ample refrigeration
@@ -100,9 +82,13 @@ Republic Street itself is permit‑only, so steer guests to garages in your invi
 
 ## A space with a story, not a theme
 
-The design lineage is real. Somerhaus is the sister space to Somerset, the indoor/outdoor cocktail garden built from eight shipping containers and global finds. Inside Somerhaus you'll spot a 200‑year‑old Japanese fishing boat hung in the rafters and village gates from India—objects with history, not just props. In other words, the environment carries conversation on its own. Browse the [photo gallery](https://somerhaus.space/venue-details/photo-gallery/) to see these details up close.
+The design lineage is real. Somerhaus is the sister space to [Somerset](https://somersetcincy.com/), the indoor/outdoor cocktail garden built from eight shipping containers and global finds. Inside Somerhaus you'll spot a 200‑year‑old Japanese fishing boat hung in the rafters and village gates from India—objects with history, not just props. In other words, the environment carries conversation on its own. Browse the [photo gallery](https://somerhaus.space/venue-details/photo-gallery/) to see these details up close.
 
-## If you’re planning here, a workable game plan
+## The sister venue for smaller gatherings
+
+One block west at 139 E McMicken Ave, [Somerset](https://somersetcincy.com/) offers a greenhouse Conservatory bar, library Lounge (20–45 guests), and garden nooks for intimate gatherings. If you need a rehearsal dinner spot, after-party venue, or cocktail-focused celebration for under 50 guests, Somerset is the natural pairing—same design sensibility, different scale.
+
+## If you're planning here, a workable game plan
 
 1. **Tour & sketch.** Walk the room, check the light, and pick the layout that matches your guest flow.
 2. **Lock the backbone.** Book the package, choose the bar tier, and confirm your caterer. Decide early where to stage photos and how you’ll use the TVs or projector.
@@ -117,5 +103,10 @@ The design lineage is real. Somerhaus is the sister space to Somerset, the indoo
 - **Included:** tables & chairs for 80, lounge areas, house sound + 2 mics, LEDs, displays, Wi‑Fi, cleaning, coordinator, 12‑hour access
 - **Load‑in:** ground‑level via roll‑up door
 - **Nearby:** Washington Park; Vine Street restaurants and bars (pre/post plans write themselves)
+
+---
+
+**See also:** [Somerset OTR | Greenhouse Cocktail Bar & Event Space](somerset-cincinnati)  
+[← Back to index](index)
 
 
